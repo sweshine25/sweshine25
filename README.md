@@ -1,0 +1,6 @@
+-  🌟Hello, I’m @sweshine25
+-  🌟I'm passionate about data analytics and am currently enhancing my skills in this field.
+-  🌟I welcome collaboration on projects related to data analysis. 
+-  🌟Contact: swejans7@gmail.com
+-  🌟Pronouns: She/Her
+-  🌟Fun fact: I love watching movies and listening to music without worrying about the lyrics. I'm a book lover, especially of romantic comedy fantasy novels. I enjoy drawing and coloring, and I'm also looking to learn sewing, embroidery, knitting, and crocheting!
